@@ -138,5 +138,10 @@
 ![Image Alt](https://github.com/UnheaIing/UnheaIing/blob/a0ee99060b047328c3a1dffe7a7a3462b4240013/cake_stamp.png)
 ![Image Alt](https://github.com/UnheaIing/UnheaIing/blob/a0ee99060b047328c3a1dffe7a7a3462b4240013/gryff_stamp.png)
 ![Image Alt](https://github.com/UnheaIing/UnheaIing/blob/0c35cabe5209c18bf9734c376d820de394f76139/gengarstamp.gif)
+![Image Alt](https://github.com/UnheaIing/UnheaIing/blob/d2c2bf03bc62c24cf295c24369180a8804971d20/Rewritestamp.png)
+![Image Alt](https://github.com/UnheaIing/UnheaIing/blob/d2c2bf03bc62c24cf295c24369180a8804971d20/aradia_pj_stamp.png)
+![Image Alt](https://github.com/UnheaIing/UnheaIing/blob/d2c2bf03bc62c24cf295c24369180a8804971d20/caliborn_stamppp.png)
+![Image Alt](https://github.com/UnheaIing/UnheaIing/blob/d2c2bf03bc62c24cf295c24369180a8804971d20/fresh_sans_stamp_lollipop.png)
+![Image Alt](https://github.com/UnheaIing/UnheaIing/blob/d2c2bf03bc62c24cf295c24369180a8804971d20/gangle_stamp.png)
 
 
