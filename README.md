@@ -143,5 +143,7 @@
 ![Image Alt](https://github.com/UnheaIing/UnheaIing/blob/d2c2bf03bc62c24cf295c24369180a8804971d20/caliborn_stamppp.png)
 ![Image Alt](https://github.com/UnheaIing/UnheaIing/blob/d2c2bf03bc62c24cf295c24369180a8804971d20/fresh_sans_stamp_lollipop.png)
 ![Image Alt](https://github.com/UnheaIing/UnheaIing/blob/d2c2bf03bc62c24cf295c24369180a8804971d20/gangle_stamp.png)
+![Image Alt](https://github.com/UnheaIing/UnheaIing/blob/98949207f6c7464a5acc520b8d2cca226f371ab9/julie_stamp.png)
+![Image Alt](https://github.com/UnheaIing/UnheaIing/blob/98949207f6c7464a5acc520b8d2cca226f371ab9/fire_stamp.png)
 
 
