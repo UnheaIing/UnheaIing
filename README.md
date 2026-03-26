@@ -16,7 +16,7 @@
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ⛔ Do NOT flirt, cuddle, sit close or kiss me. Me and my partner prefer our own space.
 
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ (˶ᵔ ᵕ ᵔ˶) I'm a roleplayer! Often me and my partner roleplay by ourselves, but we don't mind if others join our public shenanagans
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ I'm a roleplayer! Often me and my partner roleplay by ourselves, but we don't mind if others join our public shenanagans
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ Sometimes I can be "in character" and respond as so but I use " (( " to signify that I am speaking OOC. ✔ 0u0
 
