@@ -111,4 +111,12 @@
 ![Image Alt](https://github.com/UnheaIing/UnheaIing/blob/efaf03b7b3d338ffbb1cfc1dafb1f9eaa6481ff3/rainbow_stamp.png)
 ![Image Alt](https://github.com/UnheaIing/UnheaIing/blob/efaf03b7b3d338ffbb1cfc1dafb1f9eaa6481ff3/sag_stamp.png)
 ![Image Alt](https://github.com/UnheaIing/UnheaIing/blob/efaf03b7b3d338ffbb1cfc1dafb1f9eaa6481ff3/unicorn_stamp.gif)
+![Image Alt](https://github.com/UnheaIing/UnheaIing/blob/3d26998df4a63da6ea77d562df0865351f9ef304/hexagon_2.gif)
+![Image Alt](https://github.com/UnheaIing/UnheaIing/blob/3d26998df4a63da6ea77d562df0865351f9ef304/hexagon_stamp.gif)
+![Image Alt](https://github.com/UnheaIing/UnheaIing/blob/3d26998df4a63da6ea77d562df0865351f9ef304/inasa_stamp.gif)
+![Image Alt](https://github.com/UnheaIing/UnheaIing/blob/3d26998df4a63da6ea77d562df0865351f9ef304/presentmic_stamo.png)
+![Image Alt](https://github.com/UnheaIing/UnheaIing/blob/3d26998df4a63da6ea77d562df0865351f9ef304/rouge_stamp.png)
+![Image Alt](https://github.com/UnheaIing/UnheaIing/blob/3d26998df4a63da6ea77d562df0865351f9ef304/sharebear_stamp.png)
+![Image Alt](https://github.com/UnheaIing/UnheaIing/blob/3d26998df4a63da6ea77d562df0865351f9ef304/shifty_stamp.png)
+
 
