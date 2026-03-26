@@ -118,5 +118,7 @@
 ![Image Alt](https://github.com/UnheaIing/UnheaIing/blob/3d26998df4a63da6ea77d562df0865351f9ef304/rouge_stamp.png)
 ![Image Alt](https://github.com/UnheaIing/UnheaIing/blob/3d26998df4a63da6ea77d562df0865351f9ef304/sharebear_stamp.png)
 ![Image Alt](https://github.com/UnheaIing/UnheaIing/blob/3d26998df4a63da6ea77d562df0865351f9ef304/shifty_stamp.png)
+![Image Alt](https://github.com/UnheaIing/UnheaIing/blob/c7e505048b592efaad6c263fef653ce29321da50/engaged.png)
+![Image Alt](https://github.com/UnheaIing/UnheaIing/blob/c7e505048b592efaad6c263fef653ce29321da50/kindness_stamp.png)
 
 
