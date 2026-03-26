@@ -1,6 +1,6 @@
 ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ![Image Alt](https://github.com/UnheaIing/Unhealing/blob/2642ad07c1b4bfff207d2c1a9e4ab519e6db6b94/realarasolcuddle.png)
 
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎      ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎‎![Image Alt](https://github.com/UnheaIing/Unhealing/blob/2642ad07c1b4bfff207d2c1a9e4ab519e6db6b94/fresh_pixel.gif) ❤︎ Hello I'm Ling ❤︎![Image Alt](https://github.com/UnheaIing/Unhealing/blob/2642ad07c1b4bfff207d2c1a9e4ab519e6db6b94/aradia_pixel.gif)
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎      ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎‎![Image Alt](https://github.com/UnheaIing/Unhealing/blob/2642ad07c1b4bfff207d2c1a9e4ab519e6db6b94/fresh_pixel.gif) ❤︎ Hello I'm Ling ❤︎![Image Alt](https://github.com/UnheaIing/UnheaIing/blob/efaf03b7b3d338ffbb1cfc1dafb1f9eaa6481ff3/aradia_sit_pixel.gif)
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎                               ‎ ‎ ‎                     ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎![Image Alt](https://github.com/UnheaIing/Unhealing/blob/2642ad07c1b4bfff207d2c1a9e4ab519e6db6b94/heart_pixel.gif)  ⋆˙⟡♡I'm a committed relationship with my dear partner/matesprit Wandeh⋆˙⟡♡ ![Image Alt](https://github.com/UnheaIing/Unhealing/blob/2642ad07c1b4bfff207d2c1a9e4ab519e6db6b94/heart_pixel.gif)
 
@@ -107,3 +107,8 @@
 ![Image Alt](https://github.com/UnheaIing/Unhealing/blob/2642ad07c1b4bfff207d2c1a9e4ab519e6db6b94/skullkid_stamp.gif)
 ![Image Alt](https://github.com/UnheaIing/Unhealing/blob/2642ad07c1b4bfff207d2c1a9e4ab519e6db6b94/twipie_stamp.gif)
 ![Image Alt](https://github.com/UnheaIing/Unhealing/blob/2642ad07c1b4bfff207d2c1a9e4ab519e6db6b94/yandere_stamp.png)
+![Image Alt](https://github.com/UnheaIing/UnheaIing/blob/efaf03b7b3d338ffbb1cfc1dafb1f9eaa6481ff3/caliborn_stamp.png)
+![Image Alt](https://github.com/UnheaIing/UnheaIing/blob/efaf03b7b3d338ffbb1cfc1dafb1f9eaa6481ff3/rainbow_stamp.png)
+![Image Alt](https://github.com/UnheaIing/UnheaIing/blob/efaf03b7b3d338ffbb1cfc1dafb1f9eaa6481ff3/sag_stamp.png)
+![Image Alt](https://github.com/UnheaIing/UnheaIing/blob/efaf03b7b3d338ffbb1cfc1dafb1f9eaa6481ff3/unicorn_stamp.gif)
+
