@@ -140,7 +140,7 @@
 ![Image Alt](https://github.com/UnheaIing/UnheaIing/blob/c810854891f6e41aaac758e45506c5ad4c76f0b8/sheep_stamp.png)
 ![Image Alt](https://github.com/UnheaIing/UnheaIing/blob/c810854891f6e41aaac758e45506c5ad4c76f0b8/dave_stamp.png)
 ![Image Alt](https://github.com/UnheaIing/UnheaIing/blob/90f3e1f06247b52af64dcfc9fc0e5265d67b9a00/shadowmilk_stamp.png)
-![Image Alt](https://github.com/UnheaIing/UnheaIing/blob/90f3e1f06247b52af64dcfc9fc0e5265d67b9a00/time_stamp.png)
+![Image Alt](https://github.com/UnheaIing/UnheaIing/blob/431e20e92551cd4a9741fd9c1f069ffb980fdd76/void.png)
 ![Image Alt](https://github.com/UnheaIing/UnheaIing/blob/90f3e1f06247b52af64dcfc9fc0e5265d67b9a00/sweetlilyberry_stamp.png)
 ![Image Alt](https://github.com/UnheaIing/UnheaIing/blob/a0ee99060b047328c3a1dffe7a7a3462b4240013/cake_stamp.png)
 ![Image Alt](https://github.com/UnheaIing/UnheaIing/blob/a0ee99060b047328c3a1dffe7a7a3462b4240013/gryff_stamp.png)
