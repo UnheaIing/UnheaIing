@@ -157,4 +157,5 @@
 ![Image Alt](https://github.com/UnheaIing/UnheaIing/blob/e634ab39683e34ebf4b5cfc20c5ad579362ce7f4/adam.gif)
 ![Image Alt](https://github.com/UnheaIing/UnheaIing/blob/e634ab39683e34ebf4b5cfc20c5ad579362ce7f4/erinepss.png)
 ![Image Alt](https://github.com/UnheaIing/UnheaIing/blob/e634ab39683e34ebf4b5cfc20c5ad579362ce7f4/skullkid.gif)
-
+![Image Alt](https://github.com/UnheaIing/UnheaIing/blob/c1953eb4473adad22f1d471ddf9c60c8c5e990a2/awakenshadow_badge.png)
+![Image Alt](https://github.com/UnheaIing/UnheaIing/blob/c1953eb4473adad22f1d471ddf9c60c8c5e990a2/shadowkeeper_badge.png)
